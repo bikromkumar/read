@@ -1,1 +1,1 @@
-##for indexe
+##for index
